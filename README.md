@@ -1,2 +1,1 @@
-this is the readme file 
-please write a good introduction
+I want to learn and share with everyone else 
