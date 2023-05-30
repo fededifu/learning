@@ -1,1 +1,1 @@
-I want to learn and share with everyone else 
+I want to accumulate knowledge and share it with everyone else 
